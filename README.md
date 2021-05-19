@@ -1,6 +1,9 @@
 # Gucci-Garden
 These are all the items that are going to go limited for the Roblox Gucci Garden Event
 
+Event: https://www.roblox.com/gucci
+
+
 ```
 https://www.roblox.com/catalog/6803423284/Gucci-Headband
 https://www.roblox.com/catalog/6803412842/Gucci-Diamond-Framed-Sunglasses
