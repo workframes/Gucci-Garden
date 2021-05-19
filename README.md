@@ -25,3 +25,20 @@ https://www.roblox.com/catalog/6815676017/Gucci-Feather-and-Crystals-Headpiece
 https://www.roblox.com/catalog/6803395856/Gucci-Guitar-Case
 https://www.roblox.com/catalog/6807141494/Gucci-Dionysus-Bag
 ```
+**Estimated Price Guide**
+```
+5/17 Dionysus Bag with Bee - R$475  (Both variants)
+5/18 Dionysus Bag  - R$475  (Both variants)
+5/19 Diamond-Framed Sunglasses  - R$120
+5/20 GG Marmont Bag  - R$475  (Both variants)
+5/21 Headband - R$120
+5/22 Bloom Perfume -  R$120
+5/23 Ghost bag -  R$475 (Both variants)
+5/24 Wide Brim Felt Hat -  R$120
+5/25 Sunglasses with Crystals -  R$120
+5/26 Spiked Basketball Bag -  R$325 (Both variants)
+5/27 Guitar Case -  R$900
+5/28 Geometric Bag -  R$400 (Both variants)
+5/29 Horsebit 1955 Bag -  R$450
+5/30 Feathers Headpiece -  R$900
+```
